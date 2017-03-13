@@ -39,3 +39,5 @@ Sehingga penjelasan diatas yaitu antara efektif dan efisien yaitu Cerdas dan cer
 Saran
 
 Saran saya adalah untuk medalami teori atau materi kecerdasan buatan kita lebih banyak baca buku atau internet.
+
+Scan plagiarisme : https://drive.google.com/file/d/0BzpVZYjDUEBhRVZrM2NGNWI1VHM/view?usp=drivesdk
